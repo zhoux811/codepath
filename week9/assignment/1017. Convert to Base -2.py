@@ -1,0 +1,1 @@
+only 3 solutions to chek
